@@ -2,63 +2,60 @@
 <img src="https://c.tenor.com/hE0T8D0GpXsAAAAC/joinblink-blink.gif" alt="nz" width="350"/>
 </p>
 
-## ☬𝗥𝗘𝗗༒𝗗𝗥𝗔𝗚𝗢𝗡-𝗕𝗢𝗧࿐   Version 6.5
+## LION KING SL BOT ࿐   Version *
   
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+☬𝗥𝗘𝗗༒𝗗𝗥𝗔𝗚𝗢𝗡࿐+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝚁𝙴𝙳+𝙳𝚁𝙰𝙶𝙾𝙽+𝚃𝙴𝙰𝙼;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝙆.𝙋𝙧𝙖𝙗𝙝𝙖𝙨𝙝𝙖;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒ℕ𝕀𝕋ℝ𝕆࿐;💕ඉතිං+කොහොමද🙃;😁මොකද+කරන්නෙ🌹)](https://git.io/typing-svg)
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=Welcome+To+LION+KING+BOT.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+LION+KING+SL+Team;Create+by:+Mr+LK;)](https://git.io/typing-svg)
 
-LATEST VERSION 6.5 (2022-07-05 [Get videos 360p, 480p, 720p])
+LATEST VERSION * (2022.07.11)
 
-> [🔄Please Follow Me🤭](https://github.com/prabhasha2006)
+> [🔄Please Follow Me🤭](https://github.com/lionkingrasadusulaksha)
 
 <img src="https://camo.githubusercontent.com/71b837571c48af3aa60a73dbc9d5936aa359d78efbfa8a6743cbbbc16b80ef4d/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3830353930323039333930363630383138362f3830353931333937323533353539303932322f74656e6f722e676966" alt="nz" width="600"/>
 
-> Image Designed By  ==(Dineth Indusara)== RED DRAGON TEAM
+> Image Designed By  ==(Rasadu Sulaksha)== LION KING TEAM 
 
-> Created By ==(Kumuthu Prabhasha)== RED DRAGON TEAM
+> Created By ==(Rasadu Sulaksha)== LION KING TEAM
 
 <img src="https://camo.githubusercontent.com/71b837571c48af3aa60a73dbc9d5936aa359d78efbfa8a6743cbbbc16b80ef4d/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3830353930323039333930363630383138362f3830353931333937323533353539303932322f74656e6f722e676966" alt="nz" width="600"/>
 
 <p align="center">
-❯❯😎Kick bellow topics😒❮❮
+      Github
 </p>
 <p align="center">
 👇To proccess👇
 </p>
 
-> 🙂➾ [Scan QR In Your Whatsapp From Here](https://replit.com/@KumuthuPrabhash/Red-Dragon-Bot-Qr-Code?v=1)
+> 🙂➾ [Scan QR In Your Whatsapp From Here](https://www.youtube.com/channel/UCxXAXCEEpDKqhCbXT69ZJJA)
  
-> 🙂➾ [Fork This Repo By Clicking Here](https://github.com/prabhasha2006/Red-Dragon/fork)
+> 🙂➾ [Fork This Repo By Clicking Here](https://www.youtube.com/channel/UCxXAXCEEpDKqhCbXT69ZJJA)
  
-> 🙂➾ [Then Deploy The Bot From Here](https://heroku.com/deploy)
+> 🙂➾ [Then Deploy The Bot From Here](https://www.youtube.com/channel/UCxXAXCEEpDKqhCbXT69ZJJA)
 
-> 🙂➾ [Red Dragon Bot Official Website Here](https://sites.google.com/view/red-dragon-bot/home)
+> 🙂➾ [Red Dragon Bot Official Website Here](https://www.youtube.com/channel/UCxXAXCEEpDKqhCbXT69ZJJA)
 
 
 <img src="https://camo.githubusercontent.com/71b837571c48af3aa60a73dbc9d5936aa359d78efbfa8a6743cbbbc16b80ef4d/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3830353930323039333930363630383138362f3830353931333937323533353539303932322f74656e6f722e676966" alt="nz" width="600"/>
 
 
 <p align="center">
-<img src="https://i.ibb.co/6tCrPD6/image-downloader-1654443961039.gif" alt="nz" width="600"/>
+<img src=https://us.123rf.com/450wm/wikagraphic/wikagraphic2102/wikagraphic210205079/164066562-letter-lk-initial-logo-with-hand-draw-floral-initial-wedding-font-logo-with-circle-and-flowers-.jpg?ver=6" alt="nz" width="600"/>
 </p>
 
 </details>
 
-> [SUPPORT GROUP](https://chat.whatsapp.com/I1v5ZTJeFjZ9x5LzG3qPHU)
+> [SUPPORT GROUP](https://www.youtube.com/channel/UCxXAXCEEpDKqhCbXT69ZJJA)
 
 <!-- Contact Owner -->
 <b><details><summary>Contact Owner 😜</summary></b>
 
 ## ```Connect With Me```
 <p align="center">
-<a href="https://wa.me/380944814219"><img src="https://www.svgrepo.com/show/122874/whatsapp.svg" width="100"/>
+<a href="https://wa.me/94779758024"><img src="https://www.svgrepo.com/show/122874/whatsapp.svg" width="100"/>
 </p>
 
 </details>
 
-<p align="center">
-<img src="https://github.com/Platane/snk/raw/output/github-contribution-grid-snake.svg" alt="nz" width="700"/>
-</p>
-
+---------------------------------------------------------------------------------------------------------------------------------
 > 𝗛𝗼𝘄 𝗧𝗼 𝗠𝗮𝗸𝗲?
 
 > මුලින්ම qr code එක scan කරගන්න🥲 (multi devices beta වැඩ කරනෝ)
@@ -74,7 +71,7 @@ LATEST VERSION 6.5 (2022-07-05 [Get videos 360p, 480p, 720p])
 > යටට ගිහින් "Then Deploy The Bot From Here "👈මෙතනින් deploy කරන්න විතරයි තියෙන්නෙ😁
 
 
-## 𝐌𝐑: ☬𝔻𝔸ℝ𝕂༒ℕ𝕀𝕋ℝ𝕆࿐
+## LION KING SRI LANKA
 
 
 
@@ -88,7 +85,7 @@ LATEST VERSION 6.5 (2022-07-05 [Get videos 360p, 480p, 720p])
 |   Owner     |       ✅    |
 |   Islami     |       ✅     |
 |   Downloader     |       ✅     |
-|   Webzone     |       ✅[      |
+|   Webzone     |       ✅    |
 |   Searching     |       ✅      |
 |   Textpro     |       ✅      |
 |   Ephoto     |       ✅     |
@@ -111,7 +108,7 @@ LATEST VERSION 6.5 (2022-07-05 [Get videos 360p, 480p, 720p])
 	
 <div align="center">
 	
-[![Run on Repl.it](https://repl.it/badge/github/quiec/whatsAlfa)](https://replit.com/@KumuthuPrabhash/Red-Dragon-Bot-Qr-Code?v=1)
+[![Run on Repl.it](https://repl.it/badge/github/quiec/whatsAlfa)]()
 
-[![Deploy](https://www.herokucdn.com/deploy/button.svg)](https://heroku.com/deploy)
+[![Deploy](https://www.herokucdn.com/deploy/button.svg)]()
 </div>
